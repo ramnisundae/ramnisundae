@@ -6,7 +6,8 @@
 
   (“ノ _ <,, ) -  ⤷ sundaes typing . . . . readme.md has loaded successfully  .ᐟ   
             　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔  
-                 𓊔  ⸝ - socials [ヾ(๑ㆁᗜㆁ๑)ﾉ”](https://discord.com/users/1306936034256355341) rblx is sadly my old acc  . . . 
+                 𓊔  ⸝ - socials [ヾ(๑ㆁᗜㆁ๑)ﾉ”](https://discord.com/users/1306936034256355341) rblx is sadly my old acc  . . .  
+                  . [♡t♡ book hehe](https://rockstarsassemble.atabook.org/?page=1) 　✦　˚ 　　　　 ˚　.˚ (pls sign!!!11)
 
   WIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIP
               
