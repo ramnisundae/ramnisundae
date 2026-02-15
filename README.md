@@ -1,16 +1,12 @@
-## Hi there 👋
+## about me!
+ ~
+˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
+　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 ੈ✧̣̇˳·˖✶   
+  　　　　　　         𓈒   ͜͝ | ͜͝ |།ིྀ ͝ ⠀ 　   `   𝒀𝒂𝒓𝒓𝒈𝒉! 𝒚𝒆 𝒘𝒊𝒏 𝒔𝒐𝒎𝒆, 𝒚𝒆 𝒍𝒐𝒔𝒆 𝒔𝒐𝒎𝒆!  　　  𓏵 𓏵 　　     　　            𓈒      (^_\\ ) 
 
-<!--
-**ramnisundae/ramnisundae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+  (“ノ _ <,, ) -  ⤷ sundaes typing . . . . readme.md has loaded successfully  .ᐟ   
+            　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔  
+                 𓊔  ⸝ - socials [ヾ(๑ㆁᗜㆁ๑)ﾉ”](https://discord.com/users/1306936034256355341) rblx is sadly my old acc  . . . 
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  WIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIP
+              
