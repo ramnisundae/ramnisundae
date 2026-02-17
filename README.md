@@ -8,7 +8,10 @@
   𓊔  ⸝ - socials [ヾ(๑ㆁᗜㆁ๑)ﾉ”](https://discord.com/users/1306936034256355341) rblx is sadly my old acc  . . .  
          . [♡t♡ book hehe](https://rockstarsassemble.atabook.org/?page=1) 　✦　˚ 　　　　 ˚　.˚ (pls sign!!!11)
 
-  haii haii... this is for pony townreasons bcs i can . im a fellow who really really likes horses! and seals, theyre so cute!!!1 (i wont be talking about breeds, just the animal. strawpage in wip huhuhuhuhuuu
+  haii haii... this is for pony townreasons bcs i can . im a fellow who really really likes horses! and seals, theyre so cute!!!1 (i wont be talking about breeds, just the animal.  usually offtab or with friends w2i my friends dont bite trust me (execpt for uh springy) 
+  ![Alt Text](https://i.pinimg.com/736x/45/a0/70/45a0707d16a8a8fdd97f830966c8467b.jpg)
+  
+  strawpage in wip huhuhuhuhuuu
 
    
               
