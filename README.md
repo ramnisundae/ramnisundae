@@ -1,5 +1,5 @@
 ## about me!
-![Alt Text](https://i.pinimg.com/originals/02/97/bb/0297bb924ba88c1c4b005afcf91037e7.gif)
+![Alt Text](https://i.pinimg.com/originals/7d/9a/fd/7d9afde66c67b5ad222ec160c2a0deb7.gif)
 
   𓊔  ⸝ - socials [ヾ(๑ㆁᗜㆁ๑)ﾉ”](https://discord.com/users/1306936034256355341) rblx is sadly my old acc  . . .  
          . [♡t♡ book hehe](https://rockstarsassemble.atabook.org/?page=1) 　✦　˚ 　　　　 ˚　.˚ (pls sign!!!11)
