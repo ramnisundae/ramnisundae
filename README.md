@@ -1,13 +1,8 @@
 ## about me!
- ~
-˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
-　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　✦　　　.　　. 　 ˚　.　　　　 　　 　　　　 ੈ✧̣̇˳·˖✶   
-  　　　　　　         𓈒   ͜͝ | ͜͝ |།ིྀ ͝ ⠀ 　   `   𝒀𝒂𝒓𝒓𝒈𝒉! 𝒚𝒆 𝒘𝒊𝒏 𝒔𝒐𝒎𝒆, 𝒚𝒆 𝒍𝒐𝒔𝒆 𝒔𝒐𝒎𝒆!  　　  𓏵 𓏵 　　     　　            𓈒      (^_\\ ) 
+![Alt Text](https://i.pinimg.com/originals/02/97/bb/0297bb924ba88c1c4b005afcf91037e7.gif)
 
-  (“ノ _ <,, ) -  ⤷ sundaes typing . . . . readme.md has loaded successfully  .ᐟ   
-            　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔  
-                 𓊔  ⸝ - socials [ヾ(๑ㆁᗜㆁ๑)ﾉ”](https://discord.com/users/1306936034256355341) rblx is sadly my old acc  . . .  
-                  . [♡t♡ book hehe](https://rockstarsassemble.atabook.org/?page=1) 　✦　˚ 　　　　 ˚　.˚ (pls sign!!!11)
+  𓊔  ⸝ - socials [ヾ(๑ㆁᗜㆁ๑)ﾉ”](https://discord.com/users/1306936034256355341) rblx is sadly my old acc  . . .  
+         . [♡t♡ book hehe](https://rockstarsassemble.atabook.org/?page=1) 　✦　˚ 　　　　 ˚　.˚ (pls sign!!!11)
 
   WIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIPWIP
               
