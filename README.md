@@ -7,6 +7,10 @@
 
 
    [🍎](https://rockstarsassemble.atabook.org/?page=1) 　[🂡](https://www.chess.com/member/jumiko1222) no strawyet..
+
+   moon/asleep - $${\color{dark red}away/afk/offtab}$$
+  
+   busy - $${\color{red}active/offt/iwc)}$$
    
 
    ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Pf.gif) ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Fc.gif)
