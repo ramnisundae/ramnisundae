@@ -1,8 +1,7 @@
 ## about me!
- ![Alt Text](https://64.media.tumblr.com/e6003c887be059883e43dd258331a141/b9ed4818df0abd52-9d/s640x960/67c37ac74cd5ce13d6876e2fb5974f955881d378.pnj)
+ ![Alt Text](https://64.media.tumblr.com/cd81dd75ffd49cc4ef371315568c32df/2006be11919028f2-47/s400x600/4ab32aa2fe4fcfcb78f21205d9568a9b277b8e43.gif)
  
- [credit](https://www.tumblr.com/st0rmysgraphicz)
- 
+ [credit](https://www.tumblr.com/st0rmysgraphicz) + [credit2](https://www.tumblr.com/zresp)
  
 
 ![Alt Text](https://64.media.tumblr.com/a597132453a35cc91d29d4af26ef0129/bb719c253a38824d-2e/s400x600/431aa73f4b51f13fcc41580a30d7e1f932330fa6.gif)
@@ -17,7 +16,9 @@
 
    ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Pf.gif) ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Fc.gif)
 
-   ![Alt Text](https://64.media.tumblr.com/e6003c887be059883e43dd258331a141/b9ed4818df0abd52-9d/s640x960/67c37ac74cd5ce13d6876e2fb5974f955881d378.pnj)
+   ![Alt Text](https://64.media.tumblr.com/c66803830f5c53db5cb51912d35f841d/5ea4a6e195b5e1a1-56/s75x75_c1/2bb8653f6a09be4ccba2dd5db148cc617a03911e.gif) 
+
+   ![Alt Text](https://64.media.tumblr.com/cd81dd75ffd49cc4ef371315568c32df/2006be11919028f2-47/s400x600/4ab32aa2fe4fcfcb78f21205d9568a9b277b8e43.gif)
    
    
 
