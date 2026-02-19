@@ -1,20 +1,19 @@
 ## about me!
- " oh dear horses, you dont understand horses like i do. " 
+ [credit](https://www.tumblr.com/st0rmysgraphicz)
  
 
 
-![Alt Text](https://i.pinimg.com/originals/7d/9a/fd/7d9afde66c67b5ad222ec160c2a0deb7.gif)
+![Alt Text](https://64.media.tumblr.com/a597132453a35cc91d29d4af26ef0129/bb719c253a38824d-2e/s400x600/431aa73f4b51f13fcc41580a30d7e1f932330fa6.gif)
 
-  𓊔  ⸝ - socials [ヾ(๑ㆁᗜㆁ๑)ﾉ”](https://discord.com/users/1306936034256355341) rblx is sadly my old acc  . . .  
-         . [♡t♡ book hehe](https://rockstarsassemble.atabook.org/?page=1) 　✦　˚ 　　　　 ˚　.˚ (pls sign!!!11)
 
-  haii haii... this is for pony townreasons bcs i can . im a fellow who really really likes horses! and seals, theyre so cute!!!1 (i wont be talking about breeds, just the animal.  usually offtab or with friends w2i my friends dont bite trust me (execpt for uh springy) 
-  ![Alt Text](https://i.pinimg.com/736x/45/a0/70/45a0707d16a8a8fdd97f830966c8467b.jpg)
-asleep - afk / offtab
+   [🍎](https://rockstarsassemble.atabook.org/?page=1) 　[🂡](https://www.chess.com/member/jumiko1222) no strawyet..
+   
 
-not alseep - active but sometimes offtab
-  
-  strawpage in wip huhuhuhuhuuu
+   ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Pf.gif) ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Fc.gif)
+   
+   
+   
+
 
    
               
