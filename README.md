@@ -12,6 +12,8 @@
    moon/asleep - $${\color{dark red}away/afk/offtab}$$       
   
    busy - $${\color{red}active/offt/iwc)}$$
+
+   i like watching chess videos so heres the [channel](https://www.youtube.com/@topchess)
    
 
    ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Pf.gif) ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Fc.gif)
