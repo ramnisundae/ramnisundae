@@ -7,7 +7,7 @@
 ![Alt Text](https://64.media.tumblr.com/a597132453a35cc91d29d4af26ef0129/bb719c253a38824d-2e/s400x600/431aa73f4b51f13fcc41580a30d7e1f932330fa6.gif)
 
 
-   [🍎] 　[🂡](https://www.chess.com/member/jumiko1222) [🍏](https://ilovecandyapplecookiehehe.straw.page)
+   [🍎](https://rockstarsassemble.atabook.org) 　[🂡](https://www.chess.com/member/jumiko1222) [🍏](https://ilovecandyapplecookiehehe.straw.page)
 
    moon/asleep - $${\color{dark red}away/afk/offtab}$$       
   
