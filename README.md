@@ -16,7 +16,7 @@
    i like watching chess videos so heres the [channel](https://www.youtube.com/@topchess)
    
 
-   ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Pf.gif) ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Fc.gif)
+   ![Alt Text](https://64.media.tumblr.com/0901a5d840003f65ffcfad9803d84900/d4a14c3777fbd89e-03/s250x400/961f2ac420f483e80d052460feeed7dc1847f447.gif)) ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Fc.gif) ![Alt Text](https://64.media.tumblr.com/7bea87449b1f5fb61fdb14c45d853e2a/c415b9fc4200add7-73/s250x400/556845842e126b4eb5c223160ad8189100a443ec.gif)
 
    ![Alt Text](https://64.media.tumblr.com/c66803830f5c53db5cb51912d35f841d/5ea4a6e195b5e1a1-56/s75x75_c1/2bb8653f6a09be4ccba2dd5db148cc617a03911e.gif) 
 
