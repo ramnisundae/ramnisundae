@@ -1,4 +1,4 @@
-## about me!
+## check sp before int!
  ![Alt Text](https://64.media.tumblr.com/9634a7259f127367bea8bf0f832b71a4/e62986c09134211a-d6/s400x600/e85918e3e228a8faa779d4fd4ff63f92285fb91f.pnj)
  
 on mobile it might look janky
