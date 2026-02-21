@@ -1,26 +1,20 @@
 ## about me!
- ![Alt Text](https://64.media.tumblr.com/cd81dd75ffd49cc4ef371315568c32df/2006be11919028f2-47/s400x600/4ab32aa2fe4fcfcb78f21205d9568a9b277b8e43.gif)
+ ![Alt Text](https://64.media.tumblr.com/9634a7259f127367bea8bf0f832b71a4/e62986c09134211a-d6/s400x600/e85918e3e228a8faa779d4fd4ff63f92285fb91f.pnj)
  
- [credit](https://www.tumblr.com/st0rmysgraphicz) + [credit2](https://www.tumblr.com/zresp)
+work in progress!
  
 
-![Alt Text](https://64.media.tumblr.com/a597132453a35cc91d29d4af26ef0129/bb719c253a38824d-2e/s400x600/431aa73f4b51f13fcc41580a30d7e1f932330fa6.gif)
+![Alt Text](https://64.media.tumblr.com/6a1365c6ae4da87e49d65c618db5cdfb/e34de8f951af7cba-a5/s1280x1920/5deba174f34492a7245a8929638d24b21bee5e8c.gif)
 
 
-   [🍎](https://rockstarsassemble.atabook.org) 　[🂡](https://www.chess.com/member/jumiko1222) [🍏](https://ilovecandyapplecookiehehe.straw.page)
+   [![Alt Text](https://64.media.tumblr.com/1eec47d4dcc05b31235a38bc2e5f1f7d/e34de8f951af7cba-ee/s400x600/69aadb102ac85ab2d6637b2375e236f839247a62.pnj)](https://rockstarsassemble.atabook.org)  [![Alt Text](https://64.media.tumblr.com/ebd677fec122409ffcaf2e703a94e054/ca972f83ad557ac3-4f/s250x400/56d66f446edace00b58f8f7706b55f5e410061ae.webp)](https://ilovecandyapplecookiehehe.straw.page)　  
+    @ uhuh... hello! hello! w2i if u please to and always have caution. ty! 
 
-   moon/asleep - $${\color{dark red}away/afk/offtab}$$       
+   ![Alt Text](https://64.media.tumblr.com/78992fac5045920e95d593dd7f070b01/2740ec0a7201f77c-04/s400x600/75e83fd4923e9601603d121b0d3016d4ab619110.gif) ![Alt Text](https://64.media.tumblr.com/e1c2bb24847924e923ea7f077cebf7d3/2740ec0a7201f77c-e9/s100x200/a51f334a1d967fe18d1d12a87701e6ff692fc086.pnj) ![Alt Text](https://64.media.tumblr.com/3c564c9697f849f98d6b1ec1a093fd1c/2740ec0a7201f77c-2a/s100x200/525396de743ee6cc6a3182ff9318d8ee903127f3.pnj)
+
   
-   busy - $${\color{red}active/offt/iwc)}$$
 
-   i like watching chess videos so heres the [channel](https://www.youtube.com/@topchess)
-   
-
-   ![Alt Text](https://64.media.tumblr.com/0901a5d840003f65ffcfad9803d84900/d4a14c3777fbd89e-03/s250x400/961f2ac420f483e80d052460feeed7dc1847f447.gif)) ![Alt Text](https://blinkies.cafe/b/blinkiesCafe-Fc.gif) ![Alt Text](https://64.media.tumblr.com/7bea87449b1f5fb61fdb14c45d853e2a/c415b9fc4200add7-73/s250x400/556845842e126b4eb5c223160ad8189100a443ec.gif)
-
-   ![Alt Text](https://64.media.tumblr.com/c66803830f5c53db5cb51912d35f841d/5ea4a6e195b5e1a1-56/s75x75_c1/2bb8653f6a09be4ccba2dd5db148cc617a03911e.gif) 
-
-   ![Alt Text](https://64.media.tumblr.com/cd81dd75ffd49cc4ef371315568c32df/2006be11919028f2-47/s400x600/4ab32aa2fe4fcfcb78f21205d9568a9b277b8e43.gif)
+   ![Alt Text](https://64.media.tumblr.com/9634a7259f127367bea8bf0f832b71a4/e62986c09134211a-d6/s400x600/e85918e3e228a8faa779d4fd4ff63f92285fb91f.pnj)
    
    
 
