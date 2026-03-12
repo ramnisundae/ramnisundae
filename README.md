@@ -6,12 +6,12 @@
 wowzas! wip
   
 ggrr
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [Ata](https://sundaesvannyy.atabook.org)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ [Ata](https://passionat25.atabook.org)
   <details>
     <summary>me</summary>
   hello, thanks for stopping by, im Yuisaki/Sundae, i love kanade and im a kanade kinnie irl but doubles iwec / dni
     i might sound energetic 24/7, but if i dont know you i might sound dry, so sorry not trying to sound mean thanks .
-    er im not sure but i might sound mean so i use tonetags , i dont like hurting people nor people hurting me
+    er im not sure but i might sound mean so i use tonetags , i dont like hurting people nor people hurting me im nice okay!!!
   </details>
   hmm wip.
 
